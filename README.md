@@ -1,4 +1,4 @@
-# Green handicraft growth and regional quality of government
+# Regulation, government quality, and green handicraft growth
 
 research project at DIW Berlin | 2024-
 
